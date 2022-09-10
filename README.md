@@ -56,7 +56,7 @@ https://user-images.githubusercontent.com/97846891/189468838-3999eff1-9980-455a-
 
 
 
-- [Telegram Profile](@XurshidAli)
+- [Telegram Profile](https://web.telegram.org/z/)
 - [E-mail](yusuvaliyevx@gmail.com)
 
 
