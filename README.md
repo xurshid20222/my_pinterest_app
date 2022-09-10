@@ -56,7 +56,7 @@ https://user-images.githubusercontent.com/97846891/189468838-3999eff1-9980-455a-
 
 
 ## My Contact
-- Telegram Profile @Xurshid_Ali
+- Telegram Profile Username @Xurshid_Ali
 - E-mail yusuvaliyevx@gmail.com
 
 
