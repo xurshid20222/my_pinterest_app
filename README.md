@@ -55,8 +55,8 @@ https://user-images.githubusercontent.com/97846891/189468823-eacfef22-15d8-41fe-
 https://user-images.githubusercontent.com/97846891/189468838-3999eff1-9980-455a-a7d6-e200dff709e7.mp4
 
 
-
-- [Telegram Profile](@Xurshid_Ali)
-- [E-mail](yusuvaliyevx@gmail.com)
+## My Contact
+- Telegram Profile @Xurshid_Ali
+- E-mail yusuvaliyevx@gmail.com
 
 
